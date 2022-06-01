@@ -1,0 +1,4 @@
+-  hello fellow github user, im @hepiprogamer 
+-  im currently learning coding (i am noob)
+-  i barely use github, you can contact me on Discord, bush#1911.
+-  guys why does this indian person keep showing me a bunch of numbers with .'s in between?
